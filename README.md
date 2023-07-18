@@ -1,3 +1,4 @@
+[Data Used.docx](https://github.com/dominique2001gh/Dominic/files/12089040/Data.Used.docx)
 # Dominic
 ![image](https://github.com/dominique2001gh/Dominic/assets/32249419/9712fdfd-69d8-4d52-b1ed-8ec947d9f059)
 
